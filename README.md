@@ -7,4 +7,4 @@ JAROKN WAS HERE! :D
 
 James-Robert Corken Knight
 
-NEXXUS J DRAKO IS AWESOME!
+CEO of Jarokn Games
